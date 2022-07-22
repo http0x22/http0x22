@@ -5,7 +5,7 @@
 - 👯 I’m looking to collaborate on Some Roblox Executors
 - 🤔 I’m looking for help with C#
 - 💬 Ask me about Phonk
-- 📫 How to reach me: @sinepispenis On Twitter Or http0x22(playa)#7454 In Discord
+- 📫 How to reach me: @sinepispenis(never ask about my twitter name) On Twitter Or 666.66fm#7454 In Discord
 - 😄 Pronouns: He/His
 - ⚡ Fun fact: I Make Shitty Phonk Music Under The Name Fuckimane On Soundcloud And Fuckimane (Playa) On Youtube
 
